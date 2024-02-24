@@ -1,1 +1,0 @@
-read akile, ini poko
